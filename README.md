@@ -1,7 +1,5 @@
 ## Hi there 1433b 👋
-
-<!--
-**1433b/1433b** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+хыыыы
 
 Here are some ideas to get you started:
 
@@ -14,3 +12,9 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+rtrggfdfdgfdgvfdg
+fgdfd
+gfd
+fdg
+fdg
+dfgdfg
